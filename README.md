@@ -69,12 +69,6 @@ FREE <a href="https://download files link" title="Download zip">
 ------------------------------------------------------
 
 <p align="center">   
-<img alt="activity" src="https://github.com/user-attachments/assets/04c69925-8bbc-4c6c-999a-0ebbb422e62a" width="460" /></br> 
-<img alt="AnonGhost-01" src="https://github.com/user-attachments/assets/76fe42ac-e6fb-48da-b328-a3b459139a34" width="460" /></br>
-
-------------------------------------------------------
-
-<p align="center">   
 <img alt="AnopnGhost-02" src="https://github.com/user-attachments/assets/1ffe9713-faa7-4a65-b70c-6ccad57890b0" width="460" /></br>
 
 ------------------------------------------------------
@@ -85,10 +79,3 @@ FREE <a href="https://download files link" title="Download zip">
 
 <p align="center">   
 <img alt="USERSEC" src="https://github.com/user-attachments/assets/758458af-98dc-416b-9d87-7cf0e850f0a2" width="460" /></br>
-
-------------------------------------------------------
-
-<video class="center" src="https://github.com/user-attachments/assets/dd0288c5-c3b0-4f7b-878b-a99f3d719be0" controls width="460"></video></br>
-> <p align="center"><i></i></br>
-
-------------------------------------------------------
