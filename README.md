@@ -1,7 +1,7 @@
 ------------------------------------------------------
 <h1 align="center">⚡💀⚡ </br>
-🏴‍☠️C̷̡̭͖̹̽Y̵̡̱̝̩͙̓B̴̮͇̟̮̱̌͝É̵͓R̵̲̆̈͆͜Ś̶̡̙͙̬̓̍̋E̸͉̠̜͋C̶̟͎̮͛̃͂͋Ü̵͔͔̺̲̿͘͠͝Ŗ̴̳͓͚͆̚Ȉ̸̧̺̥͕̈́̉̓T̷̡̄͘Y̶̧͇̦̤̩͆̃͒ ̶̤̩̞̝̜̌̐͂͛ 🏴‍☠️ </br> 
-⚔️ ̸͔̠͉̺̃͘C̴̼̤̈́Ŷ̷̙͌B̵̧̛̯͍̓͌̈È̷̮͗̌̚͝R̵̖͕̰̈͊̂͜H̵̛̹̩̞̑̓Ä̴̡̜̤͇̦́͒͌C̶̮̤̗̉̂́͌͐Ǩ̵̘͔̻̜T̴͈͐͆̉͝I̷̛̝̰̎̾̌V̷̝̣̾ͅI̸̦̯͍̐̈̈́͊̓S̸̢͜͝M̶̮̦̕ ⚔️ </br>
+C̷̡̭͖̹̽Y̵̡̱̝̩͙̓B̴̮͇̟̮̱̌͝É̵͓R̵̲̆̈͆͜</br>
+Ś̶̡̙͙̬̓̍̋E̸͉̠̜͋C̶̟͎̮͛̃͂͋Ü̵͔͔̺̲̿͘͠͝Ŗ̴̳͓͚͆̚Ȉ̸̧̺̥͕̈́̉̓T̷̡̄͘Y̶̧͇̦̤̩͆̃͒ ̶̤̩̞̝̜̌̐͂͛</br>H̵̛̹̩̞̑̓Ä̴̡̜̤͇̦́͒͌C̶̮̤̗̉̂́͌͐Ǩ̵̘͔̻̜T̴͈͐͆̉͝I̷̛̝̰̎̾̌V̷̝̣̾ͅI̸̦̯͍̐̈̈́͊̓S̸̢͜͝M̶̮̦̕</br>
 ⚡💀⚡ </br>
    
 ------------------------------------------------------
@@ -11,31 +11,31 @@
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/ab1796b2-72d3-4678-b2b6-83be792b3512" /center>
 </br>
 
-<h3 align="center" href="https://github.com/R4GN4R0K-SEC/pandora" title="files github repo">
+<h4 align="center" href="https://github.com/R4GN4R0K-SEC/pandora" title="files github repo">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/3cbe8b24-0309-45e8-932d-852c0917b865"/>
-◀️🗃️|PANDORA|📥▶️ <a href="https://github.com/R4GN4R0K-SEC/pandora/archive/refs/heads/main.zip" title="Download zip">
+PANDORA <a href="https://github.com/R4GN4R0K-SEC/pandora/archive/refs/heads/main.zip" title="Download zip">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/03400010-8696-4019-83d7-926b217f8203"/></br>    
 
-<h3 align="center" href="https://repositorie link" title="files github repo">
+<h4 align="center" href="https://repositorie link" title="files github repo">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/3cbe8b24-0309-45e8-932d-852c0917b865"/>
-◀️🗃️|FREE SLOT|📥▶️ <a href="https://download files link" title="Download zip">
+FREE <a href="https://download files link" title="Download zip">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/03400010-8696-4019-83d7-926b217f8203"/></br>
 
-<h3 align="center" href="https://repositorie link" title="files github repo">
+<h4 align="center" href="https://repositorie link" title="files github repo">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/3cbe8b24-0309-45e8-932d-852c0917b865"/>
-◀️🗃️|FREE SLOT|📥▶️ <a href="https://download files link" title="Download zip">
+FREE <a href="https://download files link" title="Download zip">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/03400010-8696-4019-83d7-926b217f8203"/></br>
 
-<h3 align="center" href="https://repositorie link" title="files github repo">
+<h4 align="center" href="https://repositorie link" title="files github repo">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/3cbe8b24-0309-45e8-932d-852c0917b865"/>
-◀️🗃️|FREE SLOT|📥▶️ <a href="https://download files link" title="Download zip">
+FREE <a href="https://download files link" title="Download zip">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/03400010-8696-4019-83d7-926b217f8203"/></br>
 
-<h3 align="center" href="https://repositorie link" title="files github repo">
+<h4 align="center" href="https://repositorie link" title="files github repo">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/3cbe8b24-0309-45e8-932d-852c0917b865"/>
-◀️🗃️|FREE SLOT|📥▶️ <a href="https://download files link" title="Download zip">
+FREE <a href="https://download files link" title="Download zip">
    <img alt="image link" src="https://github.com/R4GN4R0K-SEC/pandora/assets/74421852/03400010-8696-4019-83d7-926b217f8203"/></br>
-</h3>
+</h4>
 
 <h4 align="center"> 
 <video class="center" src=" https://github.com/user-attachments/assets/2bf747e1-9ade-48ed-ae38-75ac1a69fcb5" controls width="460"></video>
